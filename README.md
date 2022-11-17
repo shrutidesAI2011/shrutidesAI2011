@@ -1,4 +1,4 @@
-![](https://media0.giphy.com/media/3otPorWLQJq5GmHRtu/giphy.gif)
+![](https://giphy.com/gifs/OnceInHollywood-once-upon-a-time-in-hollywood-onceuponatimeinhollywood-L3ERvA6jWCd0qO4NdX)
 
 
 - 👋 Hi, I’m @shrutidesAI2011
