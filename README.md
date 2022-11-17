@@ -1,3 +1,4 @@
+https://giphy.com/gifs/OnceInHollywood-leonardo-dicaprio-leo-kd9BlRovbPOykLBMqX
 - 👋 Hi, I’m @shrutidesAI2011
 - 👀 I’m interested in Data Science 
 - 🌱 I’m currently learning Full Stack Data Science from AlmaBetter and Business Analytics from upGrad
