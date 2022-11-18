@@ -1,4 +1,4 @@
-
+![Alt Text](https://media.giphy.com/media/vFKqnCdLPNOKc/giphy.gif)
 
 - 👋 Hi, I’m @shrutidesAI2011
 - 👀 I’m interested in Data Science 
