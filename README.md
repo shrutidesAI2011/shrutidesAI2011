@@ -1,4 +1,4 @@
-![Alt Text](https://giphy.com/gifs/OnceInHollywood-once-upon-a-time-in-hollywood-onceuponatimeinhollywood-L3ERvA6jWCd0qO4NdX)
+![Alt Text](https://giphy.com/gifs/OnceInHollywood-once-upon-a-time-in-hollywood-onceuponatimeinhollywood-L3ERvA6jWCd0qO4NdX/giphy.gif)
 
 - 👋 Hi, I’m @shrutidesAI2011
 - 👀 I’m interested in Data Science 
